@@ -1,1 +1,1 @@
-# Intelig-ncia-Artificial---Projeto-1
+# Inteligencia-Artificial---Projeto-1
